@@ -1,1 +1,1 @@
-# gamelinks
+https://gamestatus.info/
