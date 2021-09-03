@@ -1,3 +1,1 @@
-Список для вашего ПК
-
-https://gamestatus.info/
+https://gamestatus.info/ - Список для вашего ПК
