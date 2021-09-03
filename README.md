@@ -1,4 +1,4 @@
-https://gamestatus.info/ - Список для вашего ПК
+
 https://gamestatus.info/hytale - Взлом Hytale
 https://gamestatus.info/deathground - Взлом Deathground
 https://gamestatus.info/tekken-8 - Взлом Tekken 8
